@@ -10,7 +10,10 @@
 
 
 <p align="center">
-	int on my ztuff whenever .ᐟ huge c + h comf . ♥
+	int on my stuff whenever .ᐟ huge c + h comf . ♥
 
 <p align= "center">
-dnc my zkinz plzz... .ᐟ.ᐟ thank yoouuuuu.. (✿^‿^)
+dnc my skins plss, thank yoouuuuu.. (✿^‿^)
+
+<p align= "center">
+strawpage is in wip . 🗝
