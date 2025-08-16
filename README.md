@@ -10,7 +10,8 @@
 
 
 <p align="center">
-<img width="500" height=400 src= "https://github.com/user-attachments/assets/58cb59e1-e21e-45d0-9c22-139a280b2a78"
+<img width="400" height=400 src="https://github.com/user-attachments/assets/43d48002-37eb-4c12-aee9-159438bd09bb"
+
 
 
 
