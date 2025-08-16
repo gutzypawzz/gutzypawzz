@@ -21,4 +21,4 @@
 dnc my skins plss ! thank yoouuuuu.. (✿^‿^)
 
 <p align= "center">
-strawpage will be done soon . 🗝
+strawpage will be done when i feel like it LOL . 🗝
