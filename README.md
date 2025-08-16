@@ -1,5 +1,7 @@
 <p align="center">
- <img width="523" height="496" alt="478720572-df33bcdf-8e4e-4fed-80d9-ddeb3c51402f__fliter--warm-sea__channel--red__mode--normal" src="https://github.com/user-attachments/assets/11be5ba0-fc67-48d3-b2c1-f8a31fe5d581"
+ <img width="491" height="413" alt="gaz and soap graphics lalalala _20250816173659" src="https://github.com/user-attachments/assets/0ecd198b-ddec-457c-a54e-f11191119a2d"
+
+
 
  
 
